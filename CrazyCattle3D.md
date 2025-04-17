@@ -64,3 +64,5 @@
 "*Crazy Cattle 3D* turns pastoral tranquility into slapstick warfare, where mastering Newtonian physics beats bullet spray. Its maps aren’t just arenas—they’re kinetic weapons waiting to be exploited by wool-covered tacticians."
 
 Let me know if you'd like to expand on any section! 🐑💥
+
+https://crazycattle3d.one/
